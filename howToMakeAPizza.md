@@ -21,4 +21,3 @@
     j. El punto exacto de la pizza es: el queso derretido y ligeramente dorado por arriba, y la masa de pizza ligeramente marrón por debajo. 
     k. Debe poder quebrarse con facilidad sin llegar a ser una galleta.
 
-
